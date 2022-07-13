@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Venxru
+- 👀 I’m interested in Game Developement
+- 🌱 I’m currently learning Coding
+- 🤝 I’m looking to collaborate on Game Developement
+- 📫 Contact: Discord: @Banks#1000
